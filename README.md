@@ -1,1 +1,0 @@
-# Slogan-and-Mission-Statement
